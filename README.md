@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @1337fm
-- 👀 I’m intere
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...t.me/x1337fm
+TG ONLY xD
+t.me/x1337fm
+t.me/x1337fm
+t.me/x1337fm
